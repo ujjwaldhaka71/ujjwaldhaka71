@@ -2,9 +2,9 @@
 
 🚀 I’m curious about finance, AI, and building things with code.
 
-🌐 Portfolio: https://ujjwaldhaka.com  
+🌐 Website: https://ujjwaldhaka.com  
 📧 Email: ujjwaldhaka71@gmail.com  
-💼 LinkedIn: https://linkedin.com/in/ujjwal-dhaka-2a3100362  
+💼 LinkedIn: https://linkedin.com/in/ujjwaldhaka 
 
 ---
 
