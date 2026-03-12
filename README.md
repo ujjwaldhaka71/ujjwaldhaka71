@@ -1,6 +1,6 @@
 👋 Hi, I'm Ujjwal Dhaka
 
-🚀 Finance × AI × Bitcoin
+🚀 I’m curious about finance, AI, and building things with code.
 
 🌐 Portfolio: https://ujjwaldhaka.com  
 📧 Email: ujjwaldhaka71@gmail.com  
